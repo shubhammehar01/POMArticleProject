@@ -1,1 +1,0 @@
-# POMArticleProject
